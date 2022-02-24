@@ -1,9 +1,0 @@
-Civilization occurred in the Nile river valley because of its great geography. The Nile river experiences periodic predictable flooding. The citizens of the Nile River Valley civilization used this to their advantage. The Nile river Valley's location protected its civilians from invasion during its formative years after a flood the soil is extremely fertile and good for crops.
-
-The people of Egypt were able to predict when the Nile river would flood. On the other hand, the people of Mesopotamia were unable to protect the times of their rivers for the flood. Egyptian's believed the gods favored them while the Mesopotamians believed the gods are punishing them. These beliefs were probably influenced by the flooding rivers. Egyptian geography kept out invaders while Mesopotamia's geography left people open to invaders. Egypt had stone, Mesopotamia had clay. This is why Egyptian architecture lasted longer; clay decays faster than stone.
-
-Mesopotamian contributions to society are stern justice, division of classes, fair treatment of women, property protection, regulation of interest, regulation of wages, contracts, and the quadratic equation.
-
-Ancient Crete stands out from its peers. Cretian society displayed no conscription, a king, yet, no evidence of tyranny, no evidence of slavery, no evidence of brutal punishment, no evidence of any inequality of gender or classes.
-
-In Ancient Crete, there is no evidence of gender  inequality. In Greece, women were slaves.  Ancient Cretian society displays specialization of labor, complexity and classism; unlike Ancient Greek society. The Greeks had slaves while Crete remained slaveless.
