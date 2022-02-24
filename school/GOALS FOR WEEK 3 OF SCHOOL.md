@@ -1,0 +1,1 @@
+- look into each assignment and document EXACTLY what work i have to do each week. I wasn't prepared this week therefore I'm going to receieve a few zeros. It's okay. Bounceback next week.

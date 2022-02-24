@@ -1,0 +1,4 @@
+- ProAV2 DI 
+- 2 channel XLR connector
+- 3.5mm male to male cable
+- XLR to USB / A/D converter

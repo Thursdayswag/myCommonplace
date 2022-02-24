@@ -1,0 +1,2 @@
+- flipping items
+- amazon to ebay dropshipping

@@ -1,0 +1,1 @@
+**Course Information:** "You will see all our assignments, the due dates, and all our course policies (the syllabus) here in Course Information. REVIEW ALL THIS IMPORTANT INFROMATION."
