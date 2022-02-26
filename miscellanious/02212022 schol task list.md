@@ -1,7 +1,7 @@
 
 
 COL 101
-- Review Module 5 content (10 min)
+- ✅ Review Module 5 content (10 min) (took 15 minutes)
 - Discussion Thread (5 min)
 - Quiz 4
 
@@ -15,8 +15,8 @@ HIS 101
 - Week 5 Video 2 (45 min)
 
 PSY 101
-- Study for Exam 1 (30 minutes)
-- Exam 1 on chapters 1 and 6 (see last page in syllabus) is located in the exam link on the toolbar (75 minutes)
+- 🖍skipped: Study for Exam 1 (30 minutes) 
+- ✅ Exam 1 on chapters 1 and 6 (see last page in syllabus) is located in the exam link on the toolbar (75 minutes)
 - Go back to week 4 leave a reply (10 min)
 
 Total Time:
