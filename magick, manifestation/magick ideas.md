@@ -1,2 +1,0 @@
-- bodily health and excellence spell
-- ✅abundance and freedom spell

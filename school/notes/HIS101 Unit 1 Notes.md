@@ -131,8 +131,8 @@ OLD KINGDOM
 - The average person contributed to the wealth of Lydia's civilization.
 - Oracles at Delfy tell king of Lydia "Croesus" that if he attacks Peria, a great empire will be destroyed. Lydia resisted the Persian and Croesus' army was destroyed.
 - Philosophy Midas was about to be burnt alive. Cyrus saved his life and made him one of his trusted advisors.
-- Cyrus the Great took Asia Minor, and the entire Fertile Crescent. His son, Darius the Great (521BCE - 486BCE), takes Egypt. 
-- Persia under Darius invades Greece 490BCE
+- Cyrus the Great took Asia Minor, and the entire Fertile Crescent. His son, Darius the Great (521BCE - 486BCE), takes Egypt in 493BCE
+- Persia under Darius invades Greece 490BCE Battle of Marathon
 - Persia under Darius' son, Xerxe invades Greece 480BCE
 - Cyrus the Great pushed eastward into northern India 
 - Cyrus standardized weights and measures.

@@ -1,0 +1,1 @@
+- ✅abundance and freedom spell
